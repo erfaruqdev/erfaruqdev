@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi semuanya, salam hangat dari Rahman Faruq 👋
 
 <!--
 **santringodingid/santringodingid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
